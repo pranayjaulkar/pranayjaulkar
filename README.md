@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jaulkarpranay@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1D9_FJkcShGipmZLyk7WYha9Bl43JxDgk/view](https://drive.google.com/file/d/1D9_FJkcShGipmZLyk7WYha9Bl43JxDgk/view)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1D9_FJkcShGipmZLyk7WYha9Bl43JxDgk/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
